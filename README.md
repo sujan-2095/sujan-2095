@@ -39,6 +39,3 @@ Hey there! I'm **Sujan P** 👨‍💻
 ---
 [![](https://visitcount.itsvg.in/api?id=sujan-2095&icon=1&color=1)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
